@@ -1,5 +1,5 @@
 ## Hi there 👋
-Men Tohitov Zafarbek 
+Men Tohitov Zafarbek men 2011 - yil tug`ilganman hozirda 1 - umumiy o`rta ta'lim maktabida o`qiyman
 <!--
 **Zafarbek765/Zafarbek765** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
